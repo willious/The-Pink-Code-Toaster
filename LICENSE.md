@@ -1,0 +1,3 @@
+This is the license...yeah. Don't steal my stuff and all that other stuff you see in license's...
+
+Thanks! :)
